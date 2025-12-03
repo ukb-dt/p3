@@ -49,7 +49,7 @@ It is what the third pole *feels like* from the outside.
 
 Apollo: sees patterns
 Dionysus: feels flux
-Zosima: stays with you
+Zosima: [stays](https://ukb-dt.github.io/throughput-03/) with you
 
 Presence is the experiential signature of:
 
